@@ -4,7 +4,7 @@ This page contains a number of pibroch (or piobaireachd) scores and other resour
 
 I assert no ownership on any of the materials enclosed within and they are hosted here in line with non-commercial exceptions allowed under copyright law ('fair use', with education being the purpose; 'limited use', with conversative and sparing use of copyright material when it is actually utilised; and 'acknowledgement' with all sources included and original authors names left intact where available). 
 
-My thanks goes to the original authors and publications from which these excerpts orginate with the hope that the use of their materials helps promote the further study and performance of ceol mor for future generations.
+My thanks goes to the original authors and publications from which these excerpts originate with the hope that the use of their materials helps promote the further study and performance of ceol mor for future generations.
 
 
 
